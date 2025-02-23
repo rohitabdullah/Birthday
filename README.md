@@ -1,4 +1,4 @@
-# 🎉 A Special Surprise for My Love ❤️ – Interactive 3D Birthday Card 🎂  
+# 🎉 A Special Surprise for My Love ❤️🎂  
 
 This is not just a birthday card; it’s a **digital surprise** filled with love and emotions. I created this **3D interactive birthday card** as a special gift for my love, **Homayra Tasnim Tonima – My Pasandeeda Aurat.** 💖  
 
